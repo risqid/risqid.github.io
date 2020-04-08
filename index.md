@@ -1,3 +1,0 @@
-# Welcome
-
-### I'm Risqi
